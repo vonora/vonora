@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @vonora.
+- 👀 I’m interested in Squash and guitar.
+- 🌱 I’m currently learning Java, math and physics.
+- 📫 How to reach me? if you know you know.
